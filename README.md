@@ -1,2 +1,0 @@
-# Paginaqlea
-por la shusha
